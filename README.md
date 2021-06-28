@@ -14,7 +14,7 @@
 - [Brutality](https://discord.com/invite/a8YUTcyhQ3)
 - [Fragment](https://discord.gg/48a9FDhX)
 - [X-Force](https://discord.gg/ApnvUBCb)
-- [Pepega](https://discord.gg/qjNGdnhm)
+- [Pepega](https://discord.gg/2NzzbkH73W)
 - [Eclipse](https://discord.gg/MvdnEpdB)
 - [Silv3r](https://discord.gg/BGSQYUVzYA)
 - [Gravity](https://discord.gg/bWtaZKnv)
